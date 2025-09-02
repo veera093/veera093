@@ -28,8 +28,8 @@
 - Collaborative projects
 
 📫 **Get in Touch:**
-- [LinkedIn](https://www.linkedin.com/in/veera93/)
-- [Email](pardhuchary09@gmail.com)
+- [LinkedIn](https://www.linkedin.com/in/veerabrahmachary093)
+- [Email](only.veera09@gmail.com)
 
 🎨 **Portfolio:**
 - [My Projects]()
